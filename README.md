@@ -1,4 +1,4 @@
-WELLYNGTTON VINICIUS MAIER N34 & REBECA PEREIRA N26    
+WELLYNGTTON VINICIUS MAIER N34  &  REBECA PEREIRA N26    
 
 A vida é uns deveres que nós trouxemos para fazer em casa.
 
