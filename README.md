@@ -16,4 +16,4 @@ link do poema
 https://www.culturagenial.com/poemas-sobre-a-vida-escritos-por-autores-famosos
 @lizibugalski
 
-![Isso é uma imagem] (https://www.guiadebemestar.com.br/relogio-de-bolso-melhores-modelos/)
+![Isso é uma imagem] (https://www.guiadebemestar.com.br/wp-content/uploads/2021/02/pHX-vu8-0-relogio-de-bolso-jiyeon-park-oshg1llsna4-unsplash-scaled-1024x576.jpg)
