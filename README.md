@@ -14,5 +14,4 @@ E iria jogando pelo caminho a casca dourada e inútil das horas.
 
 link do poema
 https://www.culturagenial.com/poemas-sobre-a-vida-escritos-por-autores-famosos
-
-https://github.com/wellyngtton022/PensamentoComputacional-1E/issues/1#issue-1318742831
+@lizibugalski
